@@ -1,0 +1,2 @@
+# khasi
+Khasi le sikako
